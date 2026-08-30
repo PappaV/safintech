@@ -1,0 +1,1 @@
+Blog post for SA FinTech Hub — Fintech comparison platform for South Africa
